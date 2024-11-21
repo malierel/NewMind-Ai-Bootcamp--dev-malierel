@@ -1,0 +1,1 @@
+# NewMind-Ai-Bootcamp--dev-malierel
